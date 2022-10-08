@@ -11,7 +11,7 @@
 
 
 #### A visual
-![bigdatahackathon4sd](https://imgur.com/a/1Q4j8XU)  
+https://imgur.com/a/1Q4j8XU
 
 
 
