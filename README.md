@@ -33,3 +33,5 @@ https://imgur.com/a/1Q4j8XU
 * Connor Marks - wowconnor
 * Sam Lovett - TheOtherHobbit
 * Haley Lepe - hqleey
+* Rosey Gutierrez - Roseyroseo
+* Skye Valdez - SVCS113
